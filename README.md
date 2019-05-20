@@ -1,0 +1,1 @@
+# ukol6_skalovatelnyPPS
